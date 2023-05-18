@@ -1,1 +1,1 @@
-# SM_Barking_Deluxe_Images
+# SM_Hyper_Bars_Images
